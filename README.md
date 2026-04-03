@@ -46,7 +46,8 @@ pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming 
 
 
 
-![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b) ![death-race-2010-paswg](https://github.com/user-attachments/assets/9911026d-5395-4554-a4bc-ad5a2f558125) ![and-this-is-a-loaded-gun-caine](https://github.com/user-attachments/assets/c000f295-06c9-4740-8035-5959570bb7c4)
+![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b) ![death-race-2010-paswg](https://github.com/user-attachments/assets/9911026d-5395-4554-a4bc-ad5a2f558125) ![and-this-is-a-loaded-gun-caine](https://github.com/user-attachments/assets/c000f295-06c9-4740-8035-5959570bb7c4) ![vox-vox-season-2](https://github.com/user-attachments/assets/d1e59192-7220-4597-966b-61d7f466f115)
+
 
 
 
