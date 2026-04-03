@@ -48,7 +48,8 @@ Bands, artists i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down 
 The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe prostoe chislo ୭ ˚. ᵎᵎ
 
 
-![poland-polish](https://github.com/user-attachments/assets/f0e35790-a733-4e7d-8834-2f0933ebb291)
+![poland-polish](https://github.com/user-attachments/assets/f0e35790-a733-4e7d-8834-2f0933ebb291) ![thailand-thailand-flag](https://github.com/user-attachments/assets/268844f0-ebd0-47f4-90b1-f9c2be29fdee)
+
 
 ⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cheshire-jax-tadw](https://github.com/user-attachments/assets/12972d92-8e39-4b9f-abd7-0299d28d4848) ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055)
 
