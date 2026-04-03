@@ -14,6 +14,7 @@
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
 ୭ ᵎᵎ 🧁!![pet-pet-petpet](https://github.com/user-attachments/assets/8e31e6a2-cd2b-4af0-8f6e-d7936c7048d4)
 
+![tadc](https://github.com/user-attachments/assets/0ba1fc0b-7199-4a79-b2f5-f0775d8ff308)
 
 
 ⤷ ゛ ˎˊ˗ I love music and i play the drums as well .ᐟ.ᐟ🎶ˎˊ˗
