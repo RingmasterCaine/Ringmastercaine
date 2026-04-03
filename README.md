@@ -21,7 +21,8 @@
 
 
 
-⤷ ゛ ˎˊ˗ I love music and i play the drums as well .ᐟ.ᐟ🎶ˎˊ˗
+⤷ ゛ ˎˊ˗ I love music and i play the drums as well .ᐟ.ᐟ🎶ˎˊ˗  ![pinkie-pie-drumming](https://github.com/user-attachments/assets/141ed1be-52aa-43f4-bef4-903e20fc93e4)
+
 
 .ᐟ🎪 Heavy Caine kinne ⛓️
 
