@@ -12,6 +12,7 @@
 Ი𐑼 Cupiromanitc   ⛓️
 
 atelophobia       ⛓️    🎩 .ᐟ.ᐟ ⤷ 
+![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/369e9228-02ee-4676-832c-7dd5cbf13c6b)
 ˎˊ˗ ![funnybunny-pomni](https://github.com/user-attachments/assets/f40241f2-f137-480f-925c-41dc8e777d36)
 
 pistanthrophobia  ⛓️
