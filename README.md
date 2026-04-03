@@ -3,8 +3,7 @@
 ˚₊‧꒰ა♡໒꒱ ‧₊˚
  ![the-amazing-digital-circus-intro-glitch-productions](https://github.com/user-attachments/assets/52a73640-67ed-4894-bc08-386ed5416f19)  
 
-![tumblr_38960ef1dc5d790bc4c2b3491c9c0fb9_c176179a_640](https://github.com/user-attachments/assets/699d9719-d756-4bfa-aacc-1ca785efdaac)  ![ragatha-tadc](https://github.com/user-attachments/assets/2372fc29-977a-44bb-b878-de42c6529d74) ![heart-heart-locket](https://github.com/user-attachments/assets/7b93c909-782a-48f6-b661-6232e245c0ac)
-
+![tumblr_38960ef1dc5d790bc4c2b3491c9c0fb9_c176179a_640](https://github.com/user-attachments/assets/699d9719-d756-4bfa-aacc-1ca785efdaac)  ![ragatha-tadc](https://github.com/user-attachments/assets/2372fc29-977a-44bb-b878-de42c6529d74) 
 
 
 
