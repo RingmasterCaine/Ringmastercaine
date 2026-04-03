@@ -1,6 +1,7 @@
 ![cat](https://github.com/user-attachments/assets/f5274bb8-0627-4213-9902-a49e6906157a)
 ![caine-plush](https://github.com/user-attachments/assets/676223db-c393-49a8-9a7c-d35b691fc2b1)
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔!
+
 ![the-amazing-digital-circus-intro-glitch-productions](https://github.com/user-attachments/assets/52a73640-67ed-4894-bc08-386ed5416f19)
 
 
