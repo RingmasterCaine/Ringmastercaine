@@ -5,6 +5,8 @@
 ## Hais  .ᐟ.ᐟ*ੈ🎡‧₊˚
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
 ୭ ᵎᵎ 🧁!
+
+
 ⤷ ゛ ˎˊ˗ I love music and i play the drums as well .ᐟ.ᐟ🎶ˎˊ˗
 
 .ᐟ🎪 Heavy Caine kinne ⛓️
