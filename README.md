@@ -2,7 +2,7 @@
 
 <!--
 **RingmasterCaine/Ringmastercaine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+![Image](https://github.com/user-attachments/assets/4d41a178-46ee-40fd-a764-45caf64f2569)
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
