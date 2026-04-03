@@ -1,6 +1,7 @@
 
 ![caine-plush](https://github.com/user-attachments/assets/676223db-c393-49a8-9a7c-d35b691fc2b1)
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+![ragatha-tadc](https://github.com/user-attachments/assets/2372fc29-977a-44bb-b878-de42c6529d74)
 
 ## Hais  .ᐟ.ᐟ*ੈ🎡‧₊˚
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
