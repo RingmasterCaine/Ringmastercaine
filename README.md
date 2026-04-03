@@ -9,7 +9,8 @@
 
 .ᐟ🎪 Heavy Caine kinne ⛓️
 
-Ი𐑼 Cupiromanitc   ⛓️            ![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/5621b772-a965-4eca-bdd9-e60ec4b111b7)      ![kangel-needy-streamer-overload](https://github.com/user-attachments/assets/46ad13a3-5d09-435d-a186-2bf552692860)
+Ი𐑼 Cupiromanitc   ⛓️            ![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/5621b772-a965-4eca-bdd9-e60ec4b111b7)      ![needy-streamer-overload-kangel](https://github.com/user-attachments/assets/c5cacd46-69b7-4a02-880c-63d49758e090)
+
 
 
 
