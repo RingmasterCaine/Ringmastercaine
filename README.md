@@ -15,7 +15,8 @@
 ୭ ᵎᵎ 🧁!![pet-pet-petpet](https://github.com/user-attachments/assets/8e31e6a2-cd2b-4af0-8f6e-d7936c7048d4)    ![tadc-caine-juggle-caine](https://github.com/user-attachments/assets/0dcbba7d-2234-48a7-a36d-78d6d4725e14)
 
 
-![tadc](https://github.com/user-attachments/assets/0ba1fc0b-7199-4a79-b2f5-f0775d8ff308) 
+![tadc](https://github.com/user-attachments/assets/0ba1fc0b-7199-4a79-b2f5-f0775d8ff308) ![tadc](https://github.com/user-attachments/assets/e7f04994-ef34-4cd6-8ef3-5ca4550c8ceb)
+
 
 
 
