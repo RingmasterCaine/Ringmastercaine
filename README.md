@@ -8,6 +8,6 @@
 ⤷ ゛ ˎˊ˗ I love music and i play the drums as well 🎶ˎˊ˗
 ![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b)
 
-**RingmasterCaine/Ringmastercaine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 :-->
