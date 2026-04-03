@@ -4,7 +4,7 @@
 ## Hi there 👋
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
 ୭ ᵎᵎ 🧁
-
+1
 <!--
 **RingmasterCaine/Ringmastercaine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
