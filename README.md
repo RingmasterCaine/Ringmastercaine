@@ -8,8 +8,11 @@
 ⤷ ゛ ˎˊ˗ I love music and i play the drums as well .ᐟ.ᐟ🎶ˎˊ˗
 
 .ᐟ🎪 Heavy Caine kinne 
+
 Ი𐑼 Cupiromanitc 
+
 atelophobia
+
 pistanthrophobia
 
 ![caine-caine-tadc](https://github.com/user-attachments/assets/38f12a6c-ce39-4b54-a7b8-6ae52a86b9bf)
