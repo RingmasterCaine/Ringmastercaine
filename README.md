@@ -6,7 +6,8 @@
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
 ୭ ᵎᵎ 🧁
 ⤷ ゛ ˎˊ˗ I love music and i play the drums as well 🎶ˎˊ˗
-<!--
+<!--![caine-jax](https://github.com/user-attachments/assets/46950eee-8b00-4df6-98cb-d26d700825d8)
+
 **RingmasterCaine/Ringmastercaine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
