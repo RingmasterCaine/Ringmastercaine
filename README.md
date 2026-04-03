@@ -9,7 +9,8 @@
 
 .ᐟ🎪 Heavy Caine kinne ⛓️
 
-Ი𐑼 Cupiromanitc   ⛓️
+Ი𐑼 Cupiromanitc   ⛓️            ![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/5621b772-a965-4eca-bdd9-e60ec4b111b7)
+
 
 atelophobia       ⛓️    🎩 .ᐟ.ᐟ ⤷ 
 
