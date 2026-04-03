@@ -1,4 +1,5 @@
 ## Hi there 👋
+![download](https://github.com/user-attachments/assets/d9810b3e-a39c-47d1-a7ed-98fd9716df5b)
 
 <!--
 **RingmasterCaine/Ringmastercaine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
