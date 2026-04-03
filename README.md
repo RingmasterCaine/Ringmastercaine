@@ -30,11 +30,11 @@
 
 
 
-atelophobia       ⛓️    🎩 .ᐟ.ᐟ ⤷ The extreme irrational fear of imperfection or making mistakes,often causing severe anxiety. . .
+atelophobia       ⛓️    🎩 .ᐟ.ᐟ ⤷ The extreme irrational fear of imperfection or making mistakes, often causing severe anxiety. . .
 
 ˎˊ˗ ![funnybunny-pomni](https://github.com/user-attachments/assets/f40241f2-f137-480f-925c-41dc8e777d36) ⤷ ゛ ˎˊ˗ I dont really have something against any ship unless Adult x minor .ᐟ.ᐟ🔗
 
-pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others,typically stemming from past traumatic relationship expperiences, such as betrayal or emotional pain ˎˊ˗ 
+pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming from past traumatic relationship expperiences, such as betrayal or emotional pain ˎˊ˗ 
 
               
           
