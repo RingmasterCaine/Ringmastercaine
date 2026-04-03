@@ -37,7 +37,8 @@ atelophobia       ⛓️    🎩 .ᐟ.ᐟ ⤷ The extreme irrational fear of imp
 pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming from past traumatic relationship expperiences, such as betrayal or emotional pain ˎˊ˗ 
 
               
-          
+          ![stamp-panty- -stocking-with-garterbelt](https://github.com/user-attachments/assets/2b25783d-6c8c-4e59-bce4-4e05af0e0541)
+
 ⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cheshire-jax-tadw](https://github.com/user-attachments/assets/12972d92-8e39-4b9f-abd7-0299d28d4848) ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055)
 
 
