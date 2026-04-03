@@ -1,9 +1,10 @@
 ## Hi there 👋
-![download](https://github.com/user-attachments/assets/d9810b3e-a39c-47d1-a7ed-98fd9716df5b)
+![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
+
 
 <!--
 **RingmasterCaine/Ringmastercaine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-![Image](https://github.com/user-attachments/assets/4d41a178-46ee-40fd-a764-45caf64f2569)
+
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
