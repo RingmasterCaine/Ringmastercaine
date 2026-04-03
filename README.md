@@ -7,7 +7,7 @@
 ୭ ᵎᵎ 🧁!
 ⤷ ゛ ˎˊ˗ I love music and i play the drums as well .ᐟ.ᐟ🎶ˎˊ˗
 
-.ᐟ🎪 Heavy Caine kinne 
+.ᐟ🎪 Heavy Caine kinne ⛓️
 
 Ი𐑼 Cupiromanitc   ⛓️
 
