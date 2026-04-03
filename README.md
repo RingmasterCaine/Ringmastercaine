@@ -8,7 +8,7 @@
 ⤷ ゛ ˎˊ˗ I love music and i play the drums as well .ᐟ.ᐟ🎶ˎˊ˗
 
 .ᐟ🎪 Heavy Caine kinne ⛓️
-
+𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃
 Ი𐑼 Cupiromanitc   ⛓️            ![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/5621b772-a965-4eca-bdd9-e60ec4b111b7)      ![kangel-needy-streamer-overload](https://github.com/user-attachments/assets/46ad13a3-5d09-435d-a186-2bf552692860)
 
 
