@@ -37,7 +37,8 @@ atelophobia       ⛓️    🎩 .ᐟ.ᐟ ⤷ The extreme irrational fear of imp
 pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming from past traumatic relationship expperiences, such as betrayal or emotional pain ˎˊ˗ 
 
               
-![stamp-panty- -stocking-with-garterbelt](https://github.com/user-attachments/assets/49bfaf4f-4e3e-462e-aae0-9f5b0f764b31)
+![panty-and-stocking-new-panty-and-stocking](https://github.com/user-attachments/assets/153dc536-c7be-4196-b2a2-77495234c894)
+
 
 ⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cheshire-jax-tadw](https://github.com/user-attachments/assets/12972d92-8e39-4b9f-abd7-0299d28d4848) ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055)
 
@@ -45,5 +46,6 @@ pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming 
 
 
 
-![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b)
+![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b) ![death-race-2010-paswg](https://github.com/user-attachments/assets/9911026d-5395-4554-a4bc-ad5a2f558125)
+
 
