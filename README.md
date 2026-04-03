@@ -19,4 +19,4 @@ pistanthrophobia  ⛓️
 
 
 ![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b)
-🎩 .ᐟ.ᐟ ⤷ ゛ ˎˊ˗ ![funnybunny-pomni](https://github.com/user-attachments/assets/f40241f2-f137-480f-925c-41dc8e777d36)
+
