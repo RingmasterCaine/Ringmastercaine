@@ -3,8 +3,6 @@
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔!
 ![the-amazing-digital-circus-intro-glitch-productions](https://github.com/user-attachments/assets/52a73640-67ed-4894-bc08-386ed5416f19)
 
-![caine-yapping](https://github.com/user-attachments/assets/858fd46b-1c59-436b-8356-0d4573436414)
-
  ![ragatha-tadc](https://github.com/user-attachments/assets/2372fc29-977a-44bb-b878-de42c6529d74)
 
 ## Hais  .ᐟ.ᐟ*ੈ🎡‧₊˚
