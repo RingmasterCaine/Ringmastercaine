@@ -9,11 +9,11 @@
 
 .ᐟ🎪 Heavy Caine kinne 
 
-Ი𐑼 Cupiromanitc 
+Ი𐑼 Cupiromanitc   ⛓️
 
-atelophobia
+atelophobia       ⛓️
 
-pistanthrophobia
+pistanthrophobia  ⛓️
 
 ![caine-caine-tadc](https://github.com/user-attachments/assets/38f12a6c-ce39-4b54-a7b8-6ae52a86b9bf)
 
