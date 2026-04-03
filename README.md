@@ -1,6 +1,6 @@
 ![cat](https://github.com/user-attachments/assets/f5274bb8-0627-4213-9902-a49e6906157a)
 ![caine-plush](https://github.com/user-attachments/assets/676223db-c393-49a8-9a7c-d35b691fc2b1)
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔!         ![tadc-the-amazing-digital-circus](https://github.com/user-attachments/assets/68cc2d0c-8da1-45a4-a3ec-e567f7234ff6)
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔!
 
             ![ragatha-tadc](https://github.com/user-attachments/assets/2372fc29-977a-44bb-b878-de42c6529d74)
 
