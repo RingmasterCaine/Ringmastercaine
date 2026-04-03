@@ -45,7 +45,7 @@ pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming 
  
 Bands, artists i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down ⋮ Weezer ⋮ Mindless self indulgence ⋮ ↓
 
-The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe prostoe chislo ୭ ˚. ᵎᵎ
+The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe prostoe chislo ⋮ Limp bizkit ୭ ˚. ᵎᵎ
 
 
 ![poland-polish](https://github.com/user-attachments/assets/f0e35790-a733-4e7d-8834-2f0933ebb291) ![thailand-thailand-flag](https://github.com/user-attachments/assets/268844f0-ebd0-47f4-90b1-f9c2be29fdee)
