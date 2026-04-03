@@ -33,7 +33,8 @@ pistanthrophobia  ⛓️
 
               
           
-⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) 
+⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cheshire-jax-tadw](https://github.com/user-attachments/assets/12972d92-8e39-4b9f-abd7-0299d28d4848)
+
 
 
 ![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b)
