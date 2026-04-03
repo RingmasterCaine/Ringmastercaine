@@ -1,3 +1,6 @@
+
+![caine-plush-1](https://github.com/user-attachments/assets/6aa6f7fb-35ac-42d2-957a-e22acc2248c7)
+
 ## Hi there 👋
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
 ୭ ᵎᵎ 🧁
