@@ -3,9 +3,9 @@
 ˚₊‧꒰ა♡໒꒱ ‧₊˚
  ![the-amazing-digital-circus-intro-glitch-productions](https://github.com/user-attachments/assets/52a73640-67ed-4894-bc08-386ed5416f19)  
 
-![tumblr_38960ef1dc5d790bc4c2b3491c9c0fb9_c176179a_640](https://github.com/user-attachments/assets/699d9719-d756-4bfa-aacc-1ca785efdaac)
+![tumblr_38960ef1dc5d790bc4c2b3491c9c0fb9_c176179a_640](https://github.com/user-attachments/assets/699d9719-d756-4bfa-aacc-1ca785efdaac)  ![ragatha-tadc](https://github.com/user-attachments/assets/2372fc29-977a-44bb-b878-de42c6529d74)
 
- ![ragatha-tadc](https://github.com/user-attachments/assets/2372fc29-977a-44bb-b878-de42c6529d74)
+
 
 ## Hais  .ᐟ.ᐟ*ੈ🎡‧₊˚
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
