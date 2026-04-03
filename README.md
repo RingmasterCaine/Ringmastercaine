@@ -10,7 +10,7 @@
 
 
 
-:--> ![funnybunny-pomni](https://github.com/user-attachments/assets/f40241f2-f137-480f-925c-41dc8e777d36)
+🎩 .ᐟ.ᐟ ⤷ ゛ ˎˊ˗ ![funnybunny-pomni](https://github.com/user-attachments/assets/f40241f2-f137-480f-925c-41dc8e777d36)
 
 
 
