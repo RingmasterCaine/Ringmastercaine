@@ -43,6 +43,7 @@ pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming 
 
 ⤷ ゛ ˎˊ˗ I vaule all My friendships as much as i love my friends! and new ones too as they mean a lot already .ᐟ꒰ঌ ໒꒱🎩
  
+Bands, arist i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down ⋮ Weezer ⋮ Mindless self indulgence ⋮
 
 
 ⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cheshire-jax-tadw](https://github.com/user-attachments/assets/12972d92-8e39-4b9f-abd7-0299d28d4848) ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055)
