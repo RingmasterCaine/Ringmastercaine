@@ -37,6 +37,7 @@ atelophobia       ⛓️    🎩 .ᐟ.ᐟ ⤷ The extreme irrational fear of imp
 
 pistanthrophobia  ⛓️ ⤷ ゛The fear of trusting others, typically stemming from past traumatic relationship expperiences, such as betrayal or emotional pain ˎˊ˗ 
 
+Acrophobia ⛓️⤷ ゛ ˎˊ˗ fear of heights ☹️
               
 ![panty-and-stocking-new-panty-and-stocking](https://github.com/user-attachments/assets/153dc536-c7be-4196-b2a2-77495234c894)
 ![cookie-run-stamp](https://github.com/user-attachments/assets/df961209-d935-4b25-8f6b-b504af41222e)
