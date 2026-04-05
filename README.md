@@ -1,4 +1,4 @@
-
+![bassie-dandys-world-bassie](https://github.com/user-attachments/assets/efcd4cfc-9907-4089-a52d-7f9ec128f1a6)
 ![caine-plush](https://github.com/user-attachments/assets/676223db-c393-49a8-9a7c-d35b691fc2b1)
 ˚₊‧꒰ა♡໒꒱ ‧₊˚
  ![the-amazing-digital-circus-intro-glitch-productions](https://github.com/user-attachments/assets/52a73640-67ed-4894-bc08-386ed5416f19)  
