@@ -24,7 +24,7 @@
 
 
 .ᐟ🎪 Heavy Caine kinne ⛓️
-
+bassie kinne 🧺 
 Ი𐑼 Cupiromanitc   ⛓️            ![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/5621b772-a965-4eca-bdd9-e60ec4b111b7)      ![needy-streamer-overload-kangel](https://github.com/user-attachments/assets/c5cacd46-69b7-4a02-880c-63d49758e090)
 
 
