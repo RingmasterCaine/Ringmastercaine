@@ -5,6 +5,7 @@
 ⤷ ゛ ˎˊ˗🎩having such a great friendship that this is us ! 🃏:strawberry-lover
 ![tumblr_38960ef1dc5d790bc4c2b3491c9c0fb9_c176179a_640](https://github.com/user-attachments/assets/699d9719-d756-4bfa-aacc-1ca785efdaac) ![heart-heart-locket](https://github.com/user-attachments/assets/fdeea2f5-c27b-44fa-8ead-49df20e28d7e) ![ragatha-tadc](https://github.com/user-attachments/assets/171ceb63-1be0-4c4b-8134-466abf79e2eb) ![heart-heart-locket](https://github.com/user-attachments/assets/80434afa-02ae-424a-acf5-37de55d82e83)
 
+       ![dandys-world-cocoa](https://github.com/user-attachments/assets/20a0e09d-5e0a-4ecc-a53e-12ed233fb58b)
 
 
 
