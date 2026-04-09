@@ -41,7 +41,6 @@ Acrophobia ⛓️⤷ ゛ ˎˊ˗ fear of heights ☹️
 ![panty-and-stocking-new-panty-and-stocking](https://github.com/user-attachments/assets/153dc536-c7be-4196-b2a2-77495234c894)
 ![cookie-run-stamp](https://github.com/user-attachments/assets/df961209-d935-4b25-8f6b-b504af41222e)
 ![bassie-dandys-world](https://github.com/user-attachments/assets/31142509-69a9-4705-a8bb-14433eb64b2d)
-![md-cyn](https://github.com/user-attachments/assets/04ec4276-4e9c-4948-91cd-e90c24b6b5bd)
 
 
 
@@ -57,7 +56,8 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cheshire-jax-tadw](https://github.com/user-attachments/assets/12972d92-8e39-4b9f-abd7-0299d28d4848) ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055)
+⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cyn-murder-drones](https://github.com/user-attachments/assets/09d3fece-5b3a-40eb-b483-472dcebe400a)
+  ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055)
 
 
 
