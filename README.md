@@ -57,13 +57,14 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 ⤷ ゛ ˎˊ˗![lgbt-lgbtq](https://github.com/user-attachments/assets/e83ac40e-a1b0-4596-bf45-fdcba1d5a436) ![cyn-murder-drones](https://github.com/user-attachments/assets/09d3fece-5b3a-40eb-b483-472dcebe400a)
-  ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055) 
+  ![lucky-star-kagami](https://github.com/user-attachments/assets/99c7882c-f2d1-4afd-bb0a-204605ea1055) ![alien-stage-alnst](https://github.com/user-attachments/assets/ee4335f6-028e-4166-a7ee-ad1bd79c3440)
+  
 
 
 
 
 
-![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b) ![death-race-2010-paswg](https://github.com/user-attachments/assets/9911026d-5395-4554-a4bc-ad5a2f558125) ![and-this-is-a-loaded-gun-caine](https://github.com/user-attachments/assets/c000f295-06c9-4740-8035-5959570bb7c4) ![alien-stage-alnst](https://github.com/user-attachments/assets/e63de702-6bdd-4429-a2a0-1bb69e502c5f)
+![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b) ![death-race-2010-paswg](https://github.com/user-attachments/assets/9911026d-5395-4554-a4bc-ad5a2f558125) ![and-this-is-a-loaded-gun-caine](https://github.com/user-attachments/assets/c000f295-06c9-4740-8035-5959570bb7c4) 
 
 
 
