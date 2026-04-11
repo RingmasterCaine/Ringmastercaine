@@ -65,7 +65,8 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 
 
 
-![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b)![death-race-2010-paswg](https://github.com/user-attachments/assets/9911026d-5395-4554-a4bc-ad5a2f558125)![and-this-is-a-loaded-gun-caine](https://github.com/user-attachments/assets/c000f295-06c9-4740-8035-5959570bb7c4)![amphibia-marcy-amphibia](https://github.com/user-attachments/assets/b50a353e-76b9-4ef8-81c4-bfb448e053cd)
+![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b)![death-race-2010-paswg](https://github.com/user-attachments/assets/9911026d-5395-4554-a4bc-ad5a2f558125)![and-this-is-a-loaded-gun-caine](https://github.com/user-attachments/assets/c000f295-06c9-4740-8035-5959570bb7c4)![amphibia-head-pats](https://github.com/user-attachments/assets/b6480120-7618-4abd-bc47-b9bdcae6baf0)
+
 
  
 
