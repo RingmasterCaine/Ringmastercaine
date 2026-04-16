@@ -9,7 +9,7 @@
 
 
 
-## Hais  .ᐟᐟ🎡  <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" /> 
+## Hais  .ᐟᐟ🎡  
 ![caine-cute](https://github.com/user-attachments/assets/e4f19ee5-bc9d-4b2e-b115-b3ff20a0cf04)
 ୭ ᵎᵎ 🧁!![pet-pet-petpet](https://github.com/user-attachments/assets/8e31e6a2-cd2b-4af0-8f6e-d7936c7048d4)    ![tadc-caine-juggle-caine](https://github.com/user-attachments/assets/0dcbba7d-2234-48a7-a36d-78d6d4725e14) ![kinger-the-amazing-digital-circus](https://github.com/user-attachments/assets/73f60feb-4ad4-4c85-adaf-3bf0c157c4ae)
 
