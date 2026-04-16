@@ -81,7 +81,7 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 
 
 
-![tadc-caine-tadc](https://github.com/user-attachments/assets/9c8c41ce-b667-4644-ba53-e4efcee23d4b)![death-race-2010-paswg] <img width="220" height="220" alt="ribbit-ribbit-tadc" src="https://github.com/user-attachments/assets/72559c0e-6ae8-4318-a0d1-f380fba01961" />
+
 
  
 
