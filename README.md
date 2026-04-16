@@ -56,7 +56,10 @@ Acrophobia ⛓️⤷ ゛ ˎˊ˗ fear of heights ☹️
 
 ⤷ ゛ ˎˊ˗ I vaule all My friendships as much as i love my friends! and new ones too as they mean a lot already .ᐟ꒰ঌ ໒꒱🎩
  
-Bands, artists i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down ⋮ Weezer ⋮ Mindless self indulgence ⋮ ↓
+ 
+ 
+ 
+ Bands, artists i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down ⋮ Weezer ⋮ Mindless self indulgence ⋮ ↓
 
 The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe prostoe chislo ⋮ Limp bizkit ୭ ˚. ᵎᵎ
 
