@@ -56,7 +56,8 @@ Acrophobia ⛓️⤷ ゛ ˎˊ˗ fear of heights ☹️
 
 ⤷ ゛ ˎˊ˗ I vaule all My friendships as much as i love my friends! and new ones too as they mean a lot already .ᐟ꒰ঌ ໒꒱🎩
  
- 
+ <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" />
+
  
  
  Bands, artists i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down ⋮ Weezer ⋮ Mindless self indulgence ⋮ ↓
