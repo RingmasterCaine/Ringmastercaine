@@ -42,8 +42,9 @@ Acrophobia ⛓️⤷ ゛ ˎˊ˗ fear of heights ☹️
 ![cookie-run-stamp](https://github.com/user-attachments/assets/df961209-d935-4b25-8f6b-b504af41222e)
 ![bassie-dandys-world](https://github.com/user-attachments/assets/31142509-69a9-4705-a8bb-14433eb64b2d)
 ⤷ ゛ ˎˊ˗ i get stressed easliy 
-(◞‸ ◟)💧
 
+
+(◞‸ ◟)💧
 ⤷ ゛ ˎˊ˗ I vaule all My friendships as much as i love my friends! and new ones too as they mean a lot already .ᐟ꒰ঌ ໒꒱🎩
  
 Bands, artists i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down ⋮ Weezer ⋮ Mindless self indulgence ⋮ ↓
