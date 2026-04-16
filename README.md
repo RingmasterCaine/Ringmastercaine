@@ -79,6 +79,8 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 
 
 
+<img width="220" height="155" alt="jax-caine" src="https://github.com/user-attachments/assets/53ebe721-ad2d-44c8-8fc9-f7543aba6d23" /> <img width="220" height="203" alt="panty-and-stocking-paswg" src="https://github.com/user-attachments/assets/18edccbb-6272-432b-9426-e2aa0d6bda6f" />
+
 
 
 
