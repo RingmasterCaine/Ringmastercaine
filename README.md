@@ -48,6 +48,10 @@ Acrophobia ⛓️⤷ ゛ ˎˊ˗ fear of heights ☹️
 
 
 
+<img width="165" height="165" alt="maxoke-art-caine-tadc" src="https://github.com/user-attachments/assets/56804fa2-2d72-4854-adce-299f9ad928c4" />
+
+
+
 ⤷ ゛ ˎˊ˗ I vaule all My friendships as much as i love my friends! and new ones too as they mean a lot already .ᐟ꒰ঌ ໒꒱🎩
  
 Bands, artists i love ! ! 3OH!3 ⋮ Joost ⋮ Jack stauber ⋮ system of a down ⋮ Weezer ⋮ Mindless self indulgence ⋮ ↓
