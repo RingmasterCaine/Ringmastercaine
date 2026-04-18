@@ -80,7 +80,7 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 
 
 <img width="220" height="155" alt="jax-caine" src="https://github.com/user-attachments/assets/53ebe721-ad2d-44c8-8fc9-f7543aba6d23" /> <img width="220" height="203" alt="panty-and-stocking-paswg" src="https://github.com/user-attachments/assets/18edccbb-6272-432b-9426-e2aa0d6bda6f" /> <img width="220" height="220" alt="ribbit-ribbit-tadc" src="https://github.com/user-attachments/assets/1fb97616-ca59-4d76-8c9c-780c404ab4f4" />
- <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" />  <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" />  <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" /> 
+ <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" /> 
 
  <img width="112" height="112" alt="kinger-the-amazing-digital-circus" src="https://github.com/user-attachments/assets/1175e5a0-0d5d-44ff-956b-188da6790282" /> <img width="220" height="244" alt="panty-and-stocking-paswg" src="https://github.com/user-attachments/assets/b92cc0db-b7d5-4ea7-8bfe-64db9aeee9d5" /> <img width="220" height="220" alt="yosafire-gray-garden" src="https://github.com/user-attachments/assets/f6b970e7-8b9b-4ada-b91a-a58ca4f62caa" />
 
