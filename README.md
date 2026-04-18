@@ -90,7 +90,6 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 
 
 
- <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" />  <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" />  <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" />  <img width="200" height="50" alt="tadc" src="https://github.com/user-attachments/assets/b576b266-8eb6-4493-abb2-c04489f1d24f" /> 
 
 
 
