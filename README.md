@@ -89,7 +89,7 @@ The beatles ⋮ Bloodhound gang ⋮ The cure ⋮ Gorillaz ⋮ Samoe Bolshoe pros
 <img width="220" height="124" alt="caine-caine-tadc" src="https://github.com/user-attachments/assets/4fc80e29-8f4a-447f-9909-29f2db55777e" /> <img width="220" height="220" alt="paswg-scanty" src="https://github.com/user-attachments/assets/24a9e89f-2b68-4b5e-b5d7-a490d3f7b5de" /> <img width="220" height="124" alt="ragatha-the-amazing-digital-circus" src="https://github.com/user-attachments/assets/082fb6af-6160-4e7d-a1fb-2d6a65dcf7f8" /> <img width="134" height="200" alt="watgbs-wadanohara-and-the-great-blue-sea" src="https://github.com/user-attachments/assets/16bfa4ce-1fff-4442-9d70-75a79e318f4d" />
 
 
-
+<img width="1920" height="1920" alt="Image" src="https://github.com/user-attachments/assets/4f544208-eb0f-48f3-9cfb-88c4c8d76780" />
 
 
 
